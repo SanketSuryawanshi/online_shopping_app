@@ -112,4 +112,4 @@ All this while ensuring:
 
 Good luck for the hackathon
 
-Happy Learning :) Thank you!
+Happy Learning :) Thank you so much Great!
